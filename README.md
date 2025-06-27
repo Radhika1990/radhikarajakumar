@@ -49,7 +49,7 @@ I believe in fostering autonomy, psychological safety, and emotional awareness w
 ---
 
 ## 📫 Let’s Connect
-- [LinkedIn](https://www.linkedin.com/in/radhikarajakumar)
+-  [LinkedIn]  (https://www.linkedin.com/in/radhikarajakumar) 
 - 📧 radhikaraj.cse@gmail.com
 
 ---
